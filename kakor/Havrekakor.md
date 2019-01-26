@@ -7,8 +7,8 @@
 
 ## Blanda i
 * 90 g vetemjöl
-* 105g havregryn
-* 1 g hjorthonsalt
+* 105 g havregryn
+* 1 g hjorthornssalt
 
 ## Gör 15 bollar
 * platta ut
