@@ -14,5 +14,5 @@
 * fyll med sylkt
 
 ## Grädda i ugnen
-* Grädda i ca 10 minuter
-* Låt svalna på galler
+* grädda i ca 10 minuter
+* låt svalna på galler
