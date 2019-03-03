@@ -10,14 +10,14 @@
 * 30 g mörk sirap
 
 ## Baka ut
-Dela degen i två delar
-Gör 40 cm långa längder av var del
-Platta till delarna
-Lägg på plåt
+Dela degen i två delar  
+Gör 40 cm långa längder av var del  
+Platta till delarna  
+Lägg på plåt  
 
 ## Grädda
 175 grader i 12 minuter
 
 ## Svalna
-Låt kakorna svalna i 5 minuter
-Snitta Dela på dom och låt svalna helt
+Låt kakorna svalna i 5 minuter  
+Snitta Dela på dom och låt svalna helt  
